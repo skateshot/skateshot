@@ -10,7 +10,6 @@ $\text{\color{#929998}18yo}$<br/>
   <br/>
 <a href="https://rentry.co/edgeofinphinity">rentry</a>  <br/>
 <br/>
-$\text{\color{#929998}skateshot luvr since 23'}$<br/>
 
 
 <details>
