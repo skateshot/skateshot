@@ -8,7 +8,7 @@
 $\text{\color{#929998}refer to me as anything you'd like.}$<br/>
 $\text{\color{#929998}18yo}$<br/>
   <br/>
-<a href="https://rentry.co/edgeofinphinity">rentry</a>  <br/>
+<a href="https://rentry.co/wipd">rentry</a>  <br/>
 <br/>
 
 
