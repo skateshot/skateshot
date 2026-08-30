@@ -5,8 +5,9 @@
 </p>
 <div align="center">
   <img align="center" src="https://files.catbox.moe/u9zelc.png"> <br/>
-$\text{\color{#929998}refer to me as anything you'd like.}$<br/>
+$\text{\color{#929998}rocket / fireball . any pronouns}$<br/>
 $\text{\color{#929998}18yo}$<br/>
+$\text{\color{#929998}mirrorsharing yumeshipper}$<br/>
   <br/>
 <a href="https://rentry.co/wipd">rentry</a>  <br/>
 <br/>
